@@ -26,7 +26,7 @@ Future App Movie Streaming
 ## 📥 Download APK
 Aap niche diye gaye link se latest **Future V107 APK** download kar sakte hain:
 
-👉 **[Download Future_V107.apk]([LINK_YAHAN_DAALE](https://t.me/Movies5u_app/13))** *(Note: APK download karne ke liye upar diye gaye link par click karein ya 'Releases' section me jayein.)*
+👉 **[Download Future_V107.apk]([LINK_YAHAN_DAALE] https://t.me/Movies5u_app/1) ** *(Note: APK download karne ke liye upar diye gaye link par click karein ya 'Releases' section me jayein.)*
 
 ---
 
