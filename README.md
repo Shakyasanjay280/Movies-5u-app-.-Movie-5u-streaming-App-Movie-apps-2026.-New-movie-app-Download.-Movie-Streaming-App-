@@ -4,6 +4,13 @@
 
 **Future** ek advance movie streaming application hai jo users ko latest movies, web series, aur trailers dekhne ka ek naya anubhav deta hai. Isse users ke liye fast, smooth aur premium interface ke saath design kiya gaya hai.
 
+Free Movie Streaming App APK
+Latest Web Series App Download
+Full HD Movie Downloader App
+Hindi Dubbed Movie App 2026
+Best OTT Platform Clone
+Future App Movie Streaming
+
 ---
 
 ## 📱 Features
