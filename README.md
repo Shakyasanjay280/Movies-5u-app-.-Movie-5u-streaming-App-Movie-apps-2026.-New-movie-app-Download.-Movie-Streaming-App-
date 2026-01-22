@@ -33,7 +33,8 @@ Aap niche diye gaye link se latest **Future V107 APK** download kar sakte hain:
 ## 📸 Screenshots
 | Home Screen | Admin Panel | Movie Details |
 | :---: | :---: | :---: |
-| ![Home](https://via.placeholder.com/200x400) | ![Admin](https://via.placeholder.com/200x400) | ![Details](https://via.placeholder.com/200x400) |
+| ![Home]([https://via.placeholder.com/200x400](https://ibb.co/1YXGvT16
+https://ibb.co/xqSbKX6D)) | ![Admin](https://via.placeholder.com/200x400) | ![Details](https://via.placeholder.com/200x400) |
 
 *(Apne asli screenshots ke links yahan update karein)*
 
@@ -42,7 +43,7 @@ Aap niche diye gaye link se latest **Future V107 APK** download kar sakte hain:
 ## 🌟 Support & Updates
 Agar aapko ye project pasand aaya ho, to please ek **Star ⭐** zaroor dein! Isse hume aur behtar kaam karne ki prerna milti hai.
 
-- **Telegram:** [Join Our Channel]([LINK_YAHAN_DAALE](https://t.me/Movies5u_app))
+- **Telegram:** [Join Our Channel]([LINK_YAHAN_DAALE] https://t.me/Movies5u_app
 - **WhatsApp:** [Join Group](LINK_YAHAN_DAALE)https://whatsapp.com/channel/0029VajHSN9FnSz78ivaD61V
 
 ---
