@@ -1,0 +1,2 @@
+# Movies-5u-app-.-Movie-5u-streaming-App-Movie-apps-2026.-New-movie-app-Download.-Movie-Streaming-App-
+## 📱 Features - ✅ **Latest Content:** Bollywood, Hollywood, South Hindi Dubbed, aur Web Series ki badi library. - ✅ **Multiple Quality:** 480p, 720p, 1080p aur 4K streaming options. - ✅ **Multi-Audio:** Hindi, English aur Dual Audio support. - ✅ **Dark/Light Mode:** User ki pasand ke hisaab se theme switch karne ka option. - ✅ **Request .
